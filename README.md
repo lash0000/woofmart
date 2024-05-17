@@ -1,3 +1,3 @@
 ﻿### fuckin
 
-what am I doin?
+wala sayang hindi ko na nagawa thru ASP >,<
